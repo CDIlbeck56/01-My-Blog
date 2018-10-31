@@ -1,6 +1,6 @@
 # Blog Post 1: What is the Purpose of this Site?
 
-## Topic: Fishing on Lakes in Missouri
+## Topic: Fishing on Lakes in Missouri 
 
 The purpose of this blog is to provide information to people interested in fishing on lakes in Central/Southwest Missouri. This blog is intended for tourist or people who barely have any fishing experience. In my blog posts, I will use personal fishing experiences on Table Rock Lake, Stockton Lake, and Lake of the Ozarks. Although, some of the fishing tips discussed in my posts are not only restricted to those lakes. I plan to share some fishing techniques that have worked for me and some of the resources that I have used to gain information. My recommendations may not work for everyone, but they will at least lead you in the right direction. I hope my experiences will provide helpful information and make your next fishing experience more enjoyable. 
 
