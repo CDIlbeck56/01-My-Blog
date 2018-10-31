@@ -1,4 +1,4 @@
-# Blog Post 1: What is the Purpose?
+# Blog Post 1: What is the Purpose of this Site?
 
 ## Topic: Fishing on Lakes in Missouri
 
