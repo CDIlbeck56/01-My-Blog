@@ -1,4 +1,4 @@
-#  Catching Spawing Crappie on Stockton Lake
+# Catching Crappie during the Spawn on Stockton Lake
 
 The hardest part about catching Crappie is finding where they are located in the water. In early spring and fall Crappie like to live in or around cover. They live in brush piles, next to big rocks, under docks, or next to standing timber. When the lake water is around 50 degrees fahrenheit, the Crappie can be found around those types of structures in 3-10ft of water. Crappie move into the shallower water and around structure to *spawn*. *Spawn* is just a fancy word for reproducing. The female Crappie will lay there eggs around structure, and the males will come fertilize the eggs. In my opinion, Crappie fishing is the best during the spawn because they are easy to locate and are agressive feeders. In the other parts of the year, Crappie move into deeper water and are harder to locate and catch. Crappie like to feed on tiny insects, small bait fish, and other crustaceans. When fishing for Crappie, I try to use a bait that looks similar their food source.
 
