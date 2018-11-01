@@ -6,3 +6,4 @@ The hardest part about catching Crappie is finding where they are located in the
 
 An ultra light fishing rod and a spinning reel is preffered for Crappie fishing. You will want a rod that is sensitive because you want to feel them bite your lure. On the reel, I prefer a 6 lb. fishing line or less. In addition, you will need some panfish hooks with a long shank. Crappie have small mouths and will not be able to swallow a big hook. The long shank will help you get the hook out of their mouth after you catch a one. My favorite bait for catching spawing Crappie are live minnows. You hook the minnow about an 1/8 of an inch back from its lips. The hook needs to go through the top of their body and out the bottom of the minnow. Then, you cast the minnow around the structure of the water and reel slow. With you sensitive rod and light line, you will feel them eat the minnow. You can also catch them shallow on small plastic jigs, hair jigs, and small spinner baits. 
 
+
