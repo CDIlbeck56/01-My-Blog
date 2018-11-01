@@ -1,4 +1,4 @@
-# Blog Post 1: What is the Purpose of this Site?
+# Blog Post 1: What to Expect?
 
 ## Topic: Fishing on Lakes in Missouri 
 
