@@ -1,6 +1,6 @@
 # Fishing for Spawing Smallmouth, Spotted, and Largemouth Bass on Table Rock in the Spring
 
-Public access areas surround Table Rock lake. The public areas are owned by Corps of Engineers and are used for camping or fishing; they also have boat ramps to launch your boat or plenty of shore line to walk while bank fishing. You can find a list of these locations by clicking on this link Recreations.gov.
+Public access areas surround Table Rock lake. The public areas are owned by Corps of Engineers and are used for camping or fishing; they also have boat ramps to launch your boat or plenty of shore line to walk while bank fishing. You can find a list of these locations by clicking on this link [Recreations.gov](https://www.recreation.gov/camping/gateways/2264).
 
 While there are several places to fish on Table Rock, my favorite is the Kings River.  In early spring, I launch my boat at the Shell Knob bridge and head west into the Kings River.  The water up in the Kings River is known for being murky or stained. From late March through mid-May, the early rains makes the Kings River murky. When the water becomes murky, the sunlight warms it faster.
 
